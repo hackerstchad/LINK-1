@@ -1,6 +1,8 @@
 
 haute qualite rapide https://letsenhance.io/fr/boost
 
+https://imgupscaler.ai/super-resolution/
+
 
 # LINK
 secret zone
