@@ -1,13 +1,14 @@
-edite green https://imagetopaper.com/#
+Edite green https://imagetopaper.com/#
 
-haute qualite rapide https://letsenhance.io/fr/boost
+Haute qualite = rapide https://letsenhance.io/fr/boost
 
-https://imgupscaler.ai/super-resolution/
+Haute qualite = https://imgupscaler.ai/super-resolution/
 
-meilleur remove background https://www.craiyon.com/en/background-remover
+Meilleur remove background = https://www.craiyon.com/en/background-remover
+
 # LINK
 secret zone
 
-les protocoles d'internet https://www.manageengine.com/fr/network-monitoring/network-protocols.html
+Les protocoles d'internet https://www.manageengine.com/fr/network-monitoring/network-protocols.html
 
 README TO HTML # https://jadapps.app/markdown-tools/guides/convert-readme-markdown-to-html
