@@ -1,5 +1,7 @@
 edite green https://imagetopaper.com/#
 
+hacktown = http://hacktowncsq6tszgk452y6mmnrr7jsgfi6qozaq4arwl3oial3irzkid.onion/Resources/View/ACTI-3
+
 haute qualite rapide https://letsenhance.io/fr/boost
 
 https://imgupscaler.ai/super-resolution/
